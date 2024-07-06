@@ -1,2 +1,3 @@
 ## Hi there 👋
-https://images.pexels.com/photos/1481581/pexels-photo-1481581.jpeg?auto=compress&cs=tinysrgb&w=1260&h=750&dpr=1
+![image](https://github.com/jtardioli/jtardioli/assets/85530348/eeb8620c-d227-4e71-858c-841c81678e59)
+
