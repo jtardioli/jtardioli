@@ -1,3 +1,2 @@
 ## Hi there 👀 💻 🎸 🌊 ⛰️
-![panorama-3281188_1280](https://github.com/jtardioli/jtardioli/assets/85530348/2da2e2bd-e16d-49cf-821b-c02c4aa65bc0)
-
+![image](https://github.com/user-attachments/assets/56ec45d1-4d09-47c9-a7e4-67ec1d1b0406)
